@@ -36,4 +36,4 @@ really interested in psychology
 
 i like pastlife wildlife and limitedlife and the badboys i love the badboys (and martren)
 
-https://www.youtube.com/watch?v=enOnTq3ASJc&list=RDenOnTq3ASJc&start_radio=1
+https://www.youtube.com/watch?v=enOnTq3ASJc
