@@ -1,39 +1,50 @@
-&nbsp;<div align="center">
-
- <img width="300" height="350" alt="17614012264308391649848983025334" src="https://files.catbox.moe/b6hct1.png">
 <p align="center">
+    <img width="600" src="https://files.catbox.moe/z4cvgx.png">
+</p>
 
-skins r usually kins of mine & i sit with friends
+<div align="center">
 
-c+h is okay and w2i pls since i tend to be offtab
+<div align="center">
 
-DONT COPY EVER. ASK 2 USE INSPO.
+![](https://komarev.com/ghpvc/?username=killbones&color=75aa3d&label=🥬)
+<div align="center">
 
-i work hard on my skins and i encourage everyone to do the same
+<sub> 17yo　　under 15 / over 20 dni
 
-▀▄▀▄▀▄▀▄▀▄▀
+<sub> teardrop fictionkin　　skins r　99%　kins of mine
 
-im 17. if ur under the age of 15 / over 20 pls dont interact
+<sub> i'm bones but the name & prns of my skin is fine
 
-you can call me by skin names / prns i dont care
+<sub> DNC　+　ASK 4 INSPO　　be creative
 
- <img width="300" height="350" alt="17614012264308391649848983025334" src="https://files.catbox.moe/nrv0ux.png">
 <p align="center">
+    <img width="300" src="https://files.catbox.moe/nrv0ux.png">
+</p>
 
-teardrop (bfdi) fictionkin
+<sub> mainly into mcyt, eddsworld, obj shows, and squidgame
 
-& my personality & humor r comparable to smallishbeans
+<sub> i also like crk, bigbang, and roblox games
 
-okay below r my interests
+<sub> i really love the [badboys](https://www.youtube.com/watch?v=enOnTq3ASJc)　and martren (wildlife)
 
-...
+<sub> w2i　/　c+h　if same interests　　i'm ...shy
 
-obj shows, eddsworld, squidgame, FRIENDS, mcyt, dandysworld, adopt me, crk, axosun, until dawn, slimerancher, BIGBANG
+<p align="center">
+    <img width="400" src="https://files.catbox.moe/7rvbb4.png">
+</p>
 
-really interested in psychology
+<div align="center">
 
-┈୨୧┈
+<img src="https://files.catbox.moe/6p0y2i.png" width="35" height="35"> <sub> what i'm listening to!
 
-i like pastlife wildlife and limitedlife and the badboys i love the badboys (and martren)
+<p align="center">
+  <a href="https://github.com/kittinan/spotify-github-profile">
+    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=qifom6hk52176qrxv13l2h9nh&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&profanity=false&bar_color=75aa3d&bar_color_cover=false">
+  </a>
+</p>
 
-https://www.youtube.com/watch?v=enOnTq3ASJc
+<sub> [my bestfriend ever](https://github.com/ecthoz)
+
+<p align="center">
+    <img width="600" src="https://files.catbox.moe/b30rn4.png">
+</p>
