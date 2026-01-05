@@ -45,6 +45,12 @@
 
 <sub> [my bestfriend ever](https://github.com/ecthoz)
 
+<img src="https://64.media.tumblr.com/7dc835e55dc484d2f653edf3459e4306/82f062ad64b65975-58/s250x400/ef1e29a8a458a7accc1d9a9dca1d10807d0d4fbb.gifv" width="175" height="175"> <img src="https://64.media.tumblr.com/d5b98d93b2e52b0c102eb992a0fe7639/e8724ec101349cfa-f0/s250x400/23ad5e15098a05034aaef5b4148f61c2ba2f4dbc.gifv" width="175" height="175">
+
+<img src="https://64.media.tumblr.com/da30dd5b8d2133f0f01cafc532136f53/2313462277efff0c-4e/s100x200/b85cea5843506d248a8da2987764208785da866c.pnj" width="115" height="115"> <img src="https://64.media.tumblr.com/68a197d7a0cab8da9c3eeae0b31e33d8/977bd8411900385c-0c/s100x200/2b3beb9f965c21cc29933960a1fe051b91b2c82c.jpg" width="115" height="115"> <img src="https://64.media.tumblr.com/9e302e0c7d66c9f4881c1ba9f9d1c504/dd9dd9869ca670f0-f1/s100x200/40ddce14638b9427ce360010e7935026cd4c93b4.jpg" width="104" height="104">
+
+<img src="https://64.media.tumblr.com/4cf2b7a016173e990ec15e800930c819/048517b550743f13-a2/s250x400/ad25d1180c25b64a0009842adc2e422f037fa78d.gifv" width="175" height="175">
+
 <p align="center">
     <img width="600" src="https://files.catbox.moe/b30rn4.png">
 </p>
