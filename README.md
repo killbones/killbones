@@ -29,6 +29,8 @@
 
 <sub> w2i　/　c+h　if same interests　　i'm ...shy
 
+PROSHIP / ANYTHING SIMILAR DNI
+
 <p align="center">
     <img width="400" src="https://files.catbox.moe/7rvbb4.png">
 </p>
