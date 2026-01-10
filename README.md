@@ -45,6 +45,8 @@ PROSHIP / ANYTHING SIMILAR DNI
   </a>
 </p>
 
+<img src="https://files.catbox.moe/dvz8zx.png" width="150" height="150">
+
 <sub> [my bestfriend ever](https://github.com/ecthoz)
 
 <img src="https://64.media.tumblr.com/7dc835e55dc484d2f653edf3459e4306/82f062ad64b65975-58/s250x400/ef1e29a8a458a7accc1d9a9dca1d10807d0d4fbb.gifv" width="175" height="175"> <img src="https://64.media.tumblr.com/d5b98d93b2e52b0c102eb992a0fe7639/e8724ec101349cfa-f0/s250x400/23ad5e15098a05034aaef5b4148f61c2ba2f4dbc.gifv" width="175" height="175">
