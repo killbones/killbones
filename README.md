@@ -9,7 +9,7 @@
 ![](https://komarev.com/ghpvc/?username=killbones&color=75aa3d&label=🥬)
 <div align="center">
 
-<sub> 17yo　　under 15 / over 20 dni
+<sub> 18yo　　under 16 / over 20 dni
 
 <sub> teardrop fictionkin　　skins r　99%　kins of mine
 
